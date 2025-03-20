@@ -1,1 +1,0 @@
-# G-Hamacher.github.io
